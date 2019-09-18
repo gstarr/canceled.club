@@ -13,4 +13,4 @@ title: Canceled Club - club of the canceled
 * 
 * 
 
-## [Submit more: Who’s canceled?](https://forms.gle/oYhE6PiwtypN9Q6VA)
+## [This list needs your help: Who’s canceled?](https://forms.gle/oYhE6PiwtypN9Q6VA)
