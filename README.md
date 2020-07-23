@@ -1,2 +1,2 @@
 # canceled.club
-A club of the canceled!
+A website people will always like!
